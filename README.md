@@ -1,4 +1,4 @@
-Top 20+ AI prompts which can help you land your dream job, save and share this post for your future reference https://lnkd.in/gxhU3p7j
+Top 20+ AI prompts which can help you land your dream job, save and share this post for your future reference 
 
 📍𝐉𝐨𝐛 𝐒𝐞𝐚𝐫𝐜𝐡 & 𝐑𝐨𝐥𝐞 𝐃𝐢𝐬𝐜𝐨𝐯𝐞𝐫𝐲 𝐏𝐫𝐨𝐦𝐩𝐭𝐬
 
